@@ -1,0 +1,2 @@
+# WiiBlox-Wiki
+very nice!
